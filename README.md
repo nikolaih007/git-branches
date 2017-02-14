@@ -4,7 +4,7 @@ These are a few of my favorite things:
 
 - People singing:
 - Raindrops on roses
-- Whiskers on kittens
+- Whiskers on hamsters
 - Bright copper kettles
 - Warm woolen mittens
-- Marked down candy prices 
+- Marked down candy prices
